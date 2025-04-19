@@ -20,3 +20,13 @@ Kanidnwlsd sobelw wisne wod weida
 ![Screenshot_۲۰۲۵۰۴۱۸_۲۱۳۶۱۲_Telegram](https://github.com/user-attachments/assets/2ba2639c-59bd-4d60-935c-5c19d215d207)
 این فیلم پخش شده از مادر خامنه ای
 ![Screenshot_۲۰۲۵۰۴۱۸_۲۱۳۵۵۵_Telegram](https://github.com/user-attachments/assets/fe197a5c-d339-4508-9a66-d237370ba674)
+
+https://CheCk.report/Yftt20K.Yftt20K.Yftt20K.Yftt20K.Yftt20K.Yftt20K.Yftt20K.Yftt20K.Yftt20K.Yftt20K.Yftt20K.Yftt20K.Yftt20K.Yftt20K.Yftt20K.Yftt20K.com
+
+https://hack.acount.rubika.spam.report.account.report.spam.@SupportBot.1.1.1.1.1.1.1.1.1.1.1.1.1.1.1.1.1.1.1.1.1.1.1.1.1.11.1.1.Bug.spam.ir/(00.22)(01-500)2(000-800)(000-900)(00-100)01-90)(2000)(10-900)",4‌","5‌","6‌","7‌","8‌","9‌0‌","1‌","2‌","3‌","4‌","5‌","6‌","7‌","8‌","9‌"0‌","1‌","2‌","3‌","4‌","5‌","6‌","7‌","8‌","9‌"0‌","1‌","2‌","3‌","4‌","5‌","6‌","7‌","8‌","9‌")
+![437239](https://github.com/user-attachments/assets/fd7d0315-0d54-4b53-b4a8-cbd1c234e58e)
+https://hack.acount.rubika.spam.report.account.report.spam
+![1](https://github.com/user-attachments/assets/ca43cfee-df46-4558-b745-b6c48a6bd7fd)
+https://3.7.0.2//D//A//H//5.8.0.3.7.9.3.yftt17k.sex.porn.hack.report.4.8.0.2.7.8.0.2.8.0.3.8.0.2.6.9.0.2.6.8.0.2.6.9.0.1.6.8.0.2
+![(m=eGM68f)(mh=3hj1nH9y3YcAJQqp)0](https://github.com/user-attachments/assets/30395780-d42c-4b91-a052-525001f38b81)
+https://mauricelambert.github.io/info/python/security/ViginereBreaker.html
